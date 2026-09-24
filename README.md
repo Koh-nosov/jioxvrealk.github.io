@@ -1,2 +1,0 @@
-# jioxvrealk.github.io
-Portfolio
